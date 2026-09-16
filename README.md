@@ -18,7 +18,7 @@
 
 ![divider](https://files.catbox.moe/iqqcun.png) 
     
-  [guns.lol](https://guns.lol/virtusimperium) [rentry](https://rentry.co/justcaine) [straw](https://virtusimperium.straw.page) [graphics](https://fluffle.cc/madnessresources) [ata](https://rejectedmeistro.atabook.org/) [Artfight](https://artfight.net/~virtusimperium)
+  [guns.lol](https://guns.lol/virtusimperium) [rentry](https://rentry.co/justcaine) [straw](https://virtusimperium.straw.page) [graphics](https://fluffle.cc/madnessresources) [ata](https://rejectedmeistro.atabook.org/) [Artfight](https://artfight.net/~virtusimperium) [rentry 2](https://www.kartiss.com/virtusimperium)
 
 ![divider](https://files.catbox.moe/iqqcun.png) 
 
